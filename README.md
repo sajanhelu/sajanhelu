@@ -1,4 +1,11 @@
-## Hi there 👋
+## Haaaaaiiii :3 
+## NOV,15,2024. The Begining
+
+## I am a school student whos worked on making mods for games aswell has having a few games on itch but most of thoes are lost to time and cant find them. 
+## along the way youll hopefully get to see me publish projects and maybe even a few games
+## ill be putting monthly updates on my life here (if i can be bothered to and im still living)
+
+## anyway thats all for now baiiii >w<
 
 <!--
 **sajanhelu/sajanhelu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
